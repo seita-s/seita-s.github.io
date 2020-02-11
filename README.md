@@ -1,1 +1,0 @@
-# seita-s.github.io
